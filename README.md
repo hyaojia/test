@@ -7,5 +7,3 @@ I love Shanyi.
 Very Love!!!
 
 Love Love Love!!!
-
-Who am I?
